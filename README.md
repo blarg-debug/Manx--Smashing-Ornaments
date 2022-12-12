@@ -9,6 +9,7 @@
   There was a story about a little girl being kidnapped in Salt Lake City, a pretty twelve-year-old blond girl with a shy smile. Wayne had watched the news report in a state of rapt excitement, envying her.
 
   There was his recurring sense that he had three extra sets of teeth, hidden somewhere behind the roof of his mouth. He ran his tongue around and around his mouth and imagined he could feel them, a series of little ridges right under the flesh. He knew now that he had only imagined losing his ordinary boy teeth, had hallucinated this under the influence of the sevoflurane, just as he had hallucinated Christmasland (lies!). But his memory of those other teeth was more real, more vivid, than the stuff of his everyday life: school, trips to the therapist, meals with his dad and Tabitha Hutter.
+
 ...
 
   Lou found a glitter-spackled silver ornament, a globe as big as a softball, tossed it in the air, and swung the hammer like a baseball bat. The glittery sphere exploded in a pretty spray of opalescent glass and copper wire.
@@ -20,6 +21,7 @@
   “Lou,” Tabitha said again, standing at the top of the embankment. “Why are you doing this?”
 
   “Because one of these is his,” Lou said, and nodded at Wayne. “Vic brought most of him back, but I want the rest.”
+
 ...
 
   Wayne smashed angels with trumpets, angels with harps, angels with hands folded in prayer. He smashed Santa, and all his reindeer, and all his elves. At first he laughed. Then, after a while, it wasn’t as funny. After a while his teeth began to ache. His face felt hot, then cold, then so cold it burned, icy-hot. He didn’t know why, didn’t give it much in the way of conscious thought.
