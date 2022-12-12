@@ -21,6 +21,7 @@
   “Lou,” Tabitha said again, standing at the top of the embankment. “Why are you doing this?”
 
   “Because one of these is his,” Lou said, and nodded at Wayne. “Vic brought most of him back, but I want the rest.”
+
 ...
 
   Wayne smashed angels with trumpets, angels with harps, angels with hands folded in prayer. He smashed Santa, and all his reindeer, and all his elves. At first he laughed. Then, after a while, it wasn’t as funny. After a while his teeth began to ache. His face felt hot, then cold, then so cold it burned, icy-hot. He didn’t know why, didn’t give it much in the way of conscious thought.
@@ -51,4 +52,4 @@ pretty face was stricken, and she was crying silently. Her feet were bloody.
 
   Lou said, “No one has to apologize for tears, dude.”
 
-- Come All Ye Faithful: Gunbarrel
+ - Come All Ye Faithful: Gunbarrel
